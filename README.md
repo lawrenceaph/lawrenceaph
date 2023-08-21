@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @lawrenceaph, a husband, dad, lawyer, blockchain developer, 3d artist, illustrator, and photgrapher.   
+- 👋 Hi, I’m @lawrenceaph, a husband, dad, lawyer, developer, 3D artist, illustrator, and photgrapher.   
